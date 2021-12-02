@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+title: "The advantages of standing on one foot"
 ---
 
-I'm glad you are here. I plan to talk about ...
+One can improve blood flow in the body by standing on one foot
